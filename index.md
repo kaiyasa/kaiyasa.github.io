@@ -1,1 +1,0 @@
-# kaiyasa.github.io
